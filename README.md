@@ -8,3 +8,4 @@ In 2011, during my wife's Master in the University of Porto, I've developed an H
 ![detail usage](Picture%20190.jpg)
 ![detail usage zoom](Picture%20188.jpg)
 ![PC and HW zoom](Picture%20189.jpg)
+![complete HW tidy up](Picture%20136.jpg)
